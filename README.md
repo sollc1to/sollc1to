@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @sollc1to
+- Actualmente estoy estudiando Lic. en Ciencias de Computación.
+- :)
